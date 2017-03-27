@@ -1,4 +1,5 @@
 <div dir="rtl" style="text-align: right;" trbidi="on">
+<title>نرم افزار  اندروید روانشناسی روانجو - بهترین نرم افزار روانشناسی اندروید</title>
 <br /></div>
 Android-Mobile-Application-psychology-ravanjoo.parsmags.com
 نرم افزار  اندروید روانشناسی روانجو
